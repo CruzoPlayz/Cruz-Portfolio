@@ -1,2 +1,2 @@
-# Cruz-Portfolio
-fuck windows am i right logzinga?
+# Cruz Portfolio
+a big picture portfolio bc idk
